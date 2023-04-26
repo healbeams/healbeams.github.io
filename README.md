@@ -6,4 +6,6 @@ Hi! I'm emi, im pretty cool and if you don't think so then you're probably prett
 
 [how to reach me](./contact.md)
 
+[heres a really cool burger recipe!!!!](./burger.md)
+
 [🦆](./favoriteduck.md)
