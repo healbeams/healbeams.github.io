@@ -7,4 +7,4 @@ Discord- healbeams#2424
 
 Telegram- @healbeams
 
-Steam- [Link to my profile :)](https://open.spotify.com/track/2kerqZxEIfdGlMy6BxseFy?si=86ac2c437e744db1)
+Steam- [Link to my profile :)](https://steamcommunity.com/id/healbeams/friends/)
