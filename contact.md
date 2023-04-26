@@ -7,4 +7,4 @@ Discord- healbeams#2424
 
 Telegram- @healbeams
 
-Steam- [Link to my profile :)](https://steamcommunity.com/id/healbeams/friends/)
+Steam- [Link to my profile :)](https://steamcommunity.com/id/healbeams)
